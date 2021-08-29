@@ -1,4 +1,4 @@
-- 👋 Hi, I’m  LostinyjockerskateordieRg☣.
+- 👋 Hi, I’m  Los,tinyjockerskateordie,Rg☣.
 - 👀 I’m interested in ...girls,music,reincarnation.and anarchy 
 - 🌱 I’m currently learning.how to be a better person,not lose my temper,
 - 💞️ I’m looking to collaborate on ...music.money opportunities,and maybe some beers!+
